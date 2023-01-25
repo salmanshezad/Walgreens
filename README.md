@@ -1,0 +1,2 @@
+# Walgreens-Leap-Project
+At the beginning of the leap, my store was trending at a 4 weeks average of about -7600 dollars per week in shrink, my goal is to decrease shrink by – 2,600 dollars from – 7,600 dollars to -5,000 dollars in shrink per week by November 11th, 2020. The reason why I choose this project is that I had identified an opportunity in my store with the help of my store manager. I have further identified that we can control and create the next steps to address this opportunity, addressing this opportunity will allow us to bring some dollars back into the store.
